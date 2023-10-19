@@ -1,1 +1,1 @@
-Добрый день/Кутмандуу күнүңүз менен/Good afternoon
+Hi! My name is Anton!
